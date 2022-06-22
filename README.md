@@ -1,2 +1,7 @@
 # SVGI Cursors
- Cursors made at 3AM™
+
+# ©TheWindowsPro98 2017 - 2022
+
+Cursors made at 3AM™
+
+Was bored, made these.
